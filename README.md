@@ -1,1 +1,0 @@
-# tynuche.github.io
